@@ -1,4 +1,3 @@
 # first-reposam
-Welcome
-Sameer 
-gautam
+Sameer gautam 
+welcome you to his place.. 
