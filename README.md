@@ -1,3 +1,3 @@
 # first-reposam
 Sameer gautam 
-welcome you to his place.. 
+welcomes you to his place.. 
